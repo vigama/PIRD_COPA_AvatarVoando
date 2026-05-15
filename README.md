@@ -1,1 +1,0 @@
-# PIRD_COPA_AvatarVoando
